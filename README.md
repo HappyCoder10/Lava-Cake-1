@@ -1,1 +1,1 @@
-# Lava-Cake-1
+Molten chocolate cake is a popular dessert that combines the elements of a flourless chocolate cake and a soufflé. Its name derives from the dessert's liquid chocolate center, and it is also known as chocolate moelleux (from French for "soft"), chocolate lava cake, or simply lava cake.
